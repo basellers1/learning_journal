@@ -1,0 +1,1 @@
+So, I see Day 6 is already due in the morning so I am getting it out of the way.  Not much new to report except the many hours of homework to fit in only a few hours after the 13 hour day for school (including the commute of course).  I was warned it would be crazy and I welcome the challenge.  Short entry as I have reading to do!
