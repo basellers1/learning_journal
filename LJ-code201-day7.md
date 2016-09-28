@@ -1,0 +1,1 @@
+I had a bit of meltdown but thankfully, Sam took time one on one to explain the code fully from lab.  I am having an easier time grasping how it ties together and how the computer thinks.  When I read today, the code examples looked clearer to me.  I am hopeful for today and beyond!
